@@ -1,4 +1,4 @@
-# 
+# elite nft trading bot | auto-sell + NFT-sniping offers the most advanced nft trading bot, with auto-sell and NFT-sniping. Ideal for professional NFT traders and collectors.
 
 
 
